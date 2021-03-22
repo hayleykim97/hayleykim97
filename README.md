@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hayleykim97
-- 👀 I’m interested in 
+- 👀 I’m interested in esterification 
 - 🌱 I’m currently learning synthetic biology
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me : hayleykim97@kribb.re.kr
